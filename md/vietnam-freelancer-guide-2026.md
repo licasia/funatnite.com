@@ -84,7 +84,7 @@ It can also happen that the girl either doesn't show up or instead, a different 
 
 ## Glow
 
-<a href="https://glowvietnam.com" rel="nofollow">Glow</a> is an app for legit massage at home. Some girls actually also offer extras, including FS. The problem is that you don't know for sure until you meet her (and are able to ask). According to reports, if a girl has reviews from Koreans, they usually do provide extras. Note that just like with Gaito, the photos are usually heavily edited. When you download the app, you won't see all profiles. You need to get the subscription to have access to all of them. Age is also hidden unless you subscribe.
+<a href="/posts/glow-massage-app-vietnam.html">Glow</a> is an app for legit massage at home. Some girls actually also offer extras, including FS. The problem is that you don't know for sure until you meet her (and are able to ask). According to reports, if a girl has reviews from Koreans, they usually do provide extras. Note that just like with Gaito, the photos are usually heavily edited. When you download the app, you won't see all profiles. You need to get the subscription to have access to all of them. Age is also hidden unless you subscribe.
 
 ## Agents
 
