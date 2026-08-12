@@ -9,6 +9,7 @@ description: How to get sex with Vietnamese girls, online and offline
 Most massage parlors in HCMC *don't* offer FS. There are only a small number of them. The most popular and well-known is Linh Cherry (LC for short). The same people who operate Linh Cherry also have a number of other similar spas in the same area in Japan Town. For example Nice Spa, Lucky Spa and Kawaii Spa. The difference between those and LC is that they are a bit cheaper and the girls a bit less good-looking. More about Linh Cherry <a href="/posts/linh-cherry-in-japan-town.html">here</a>.
 Another massage parlor that offers FS is <a href="https://maps.app.goo.gl/UmsH4UZ6vWhFBjaL7" rel="nofollow">Bồng Lai Các</a> in Q7. However, it is a lot more expensive compared to the above options - around 9mil.
 There are also some massage parlors in <a href="https://maps.app.goo.gl/m27Z9oGyFPayMD4Y9" rel="nofollow">Phú Mỹ Hưng</a>. This area is very popular with Koreans, so many of these establishments cater to the tastes of this clientele.
+Finally, in the expat district Thảo Điền, there are also a number of places that do FS. They include <a href="https://maps.app.goo.gl/5vq5tCErwwvghH3g6">Nature Mild Spa</a>, <a href="https://maps.app.goo.gl/GGRU9bjEq5hm4hQy5">Warm Spa</a> and <a href="https://maps.app.goo.gl/9aWR4wpBhSMKdTbt8">Sam's Barber & Spa</a>.
 
 # Freelancers
 You can find freelancers on dating apps as well as on local escort sites known as Gaito. A detail guide about finding freelance girls in Saigon can be found <a href="/posts/vietnam-freelancer-guide-2026.html">here</a>. Note that bringing back girls to the hotel can be a bit of a hassle sometimes. To avoid it, read the tips in this <a href="/posts/girl-friendly-hotels-in-hcmc.html">guide</a>. If you want to make sure that you don't encounter any trouble, just book an AirBnB for the entire night or a love hotel for a couple of hours.
@@ -18,3 +19,6 @@ There are two well known outcall providers in Saigon: <a href="https://maps.app.
 
 # KTVs
 Some of the girls at KTVs are usually available for take out. KTV girls are better looking than the girls you find at massage parlors and often have better English skills. This is reflected in the price. Currently, the going rates are 4-6mil for ST and 8-10mil for LT.
+
+# Map
+Refer to <a href="https://www.google.com/maps/d/u/0/edit?mid=1x5to6bzWH00SWm_RyCkinCl2lSEpMHg&ll=10.800406165654564%2C106.68360190000001&z=11">this map</a> for an overview of places.
