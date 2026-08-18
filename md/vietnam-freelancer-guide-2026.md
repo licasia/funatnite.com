@@ -43,6 +43,7 @@ Gaito girls can be found on local escort sites. These sites keep changing Urls. 
 - Banhbeo.net: very similar to anchoi.xxx.
 - Checkerviet: the profiles of Checkerviet heavily concentrate on North Vietnam, especially Hanoi and Hải Phòng. There are virtually no real reviews, no videos and only heavily edited pictures.
 - Rphang: this is a local sex forum and escort directory. Mostly has girls in the south. Not that much selection.
+- Gaito: Gaito is the original gaito site. It was down for a while and seemed to have disappeared forever. However, it appears to have come back online under the new url gaito.uk.
 
 ### Gaito profiles
 
