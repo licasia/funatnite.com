@@ -94,3 +94,7 @@ There are some agents that provide girls. The best known one is Agent Kevin. You
 ## Seeking
 
 There are a few girls on Seeking that are willing to become sugar babies. That said, their asking rates are very high (like $500/day).
+
+## Bars & Clubs
+
+Unlike in Thailand or other Southeast Asian countries, most bars & clubs in Vietnam don't have many freelancers. The one place that is most often said to have a few working girls hanging around is <a href="https://maps.app.goo.gl/HaN46Bs3N3FRbXHs6" rel="nofollow">Apocalypse</a>. Another place where you could try your luck is <a href="https://maps.app.goo.gl/SrF4Utu6GHzNWgVPA" rel="nofollow">Qui Lounge</a>, although you are more likely to score a freebie with regular partying girls there.
