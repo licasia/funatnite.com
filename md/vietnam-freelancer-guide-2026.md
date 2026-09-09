@@ -38,12 +38,18 @@ As for prices, they can vary wildly depending on the girl. On average it will be
 
 ### Gaito sites
 
-Gaito girls can be found on local escort sites. These sites keep changing Urls. Google the name provided in order to find the latest valid domain name:
-- Anchoi.xxx: this one was previously called Gaigu.net. It has a good selection and lots of girls with videos.
-- Banhbeo.net: very similar to anchoi.xxx.
+The original online directory for local escorts was called Gaito, which means something like "tender girl" in Vietnamese. Over time, more competitors emerged. But among exapts, they all became known as Gaito sites and Gaito girls.
+
+Until the beginning of 2026, there were two main websites that most people used. They were the original Gaito and another one called Gaigu. However, almost at the same time, both of them unexplicably went offline.
+
+Below is a list of the current major Gaito sites. Keep in mind that these sites keep changing Urls (either by using different TLDs like .lol, .mom, .vip etc or by adding numbers or letters to the original name). That said, if you google the main name or one of the Urls, the correct site will usually show up as the top result.
+
+- Anchoi.xxx / Gaito.uk: this one was previously called Gaigu.net. It has a good selection and lots of girls with videos. Gaito.uk looks like the old Gaito site, but is operated by the same people as Anchoi.
+- Banhbeo.net: was previously a minor player, but a lot of girls migrated to this site after Gaito & Gaigu suddenly shut down.
 - Checkerviet: the profiles of Checkerviet heavily concentrate on North Vietnam, especially Hanoi and Hải Phòng. There are virtually no real reviews, no videos and only heavily edited pictures.
 - Rphang: this is a local sex forum and escort directory. Mostly has girls in the south. Not that much selection.
-- Gaito: Gaito is the original gaito site. It was down for a while and seemed to have disappeared forever. However, it appears to have come back online under the new url gaito.uk.
+- Gaigu.fit: this site claims to be the original Gaigu, but is most likely a copy-cat.
+- Others: you can find many other websites when searching for "gái gọi" ("call girl" in Vietnamese). This includes gaigu.fit, lauxanh and others. Those are not well established and the risk of fakes/scams is higher.
 
 ### Gaito profiles
 
@@ -89,11 +95,11 @@ It can also happen that the girl either doesn't show up or instead, a different 
 
 ## Agents
 
-There are some agents that provide girls. The best known one is Agent Kevin. You can contact him on Whatsapp or Telegram at +840868976618. Another one is Zu Massage. They are only available on Zalo: +84777593205.
+There are some agents that provide girls. The best known one is <a href="https://kevinhcm.com/discover" rel="nofollow">Agent Kevin</a>. You can contact him on Whatsapp or Telegram at <a href="https://t.me/+84868976618">+84868976618</a>. Another one is Zu Massage. They are only available on Zalo: <a href="https://zalo.me/0777593205">+84777593205</a>.
 
 ## Seeking
 
-There are a few girls on Seeking that are willing to become sugar babies. That said, their asking rates are very high (like $500/day).
+There are a few girls on Seeking that are willing to become sugar babies. That said, their asking rates are usually on the higher side.
 
 ## Bars & Clubs
 
